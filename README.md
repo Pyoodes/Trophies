@@ -1,3 +1,3 @@
 ﻿# Trophies
 
-On fait les trophés ici et oui
+On fait les trophés ici et ouii
