@@ -1,5 +1,3 @@
 ﻿# Trophies
 
-On fait les trophés ici ou quoi
-
-BAHAHHAHA
+On fait les trophés ici et oui
